@@ -6,4 +6,4 @@ This repository contains multiple instances of a personally modified olcPixelGam
 
 
 
-<a href="https://href.li/?https://www.taguti.net/collections/filters" rel="dofollow !important;">EDM filters</a>
+
